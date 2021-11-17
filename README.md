@@ -1,2 +1,2 @@
- lordRifqi1
-PM Dc Gw こんにちは#8845
+# lordRifqi1
+# PM Dc Gw こんにちは#8845
